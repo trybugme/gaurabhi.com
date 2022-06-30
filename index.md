@@ -1,4 +1,4 @@
-## Welcome to People <3
+## Welcome People <3
 
 
 
